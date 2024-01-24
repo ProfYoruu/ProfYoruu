@@ -1,0 +1,6 @@
+꧂I am not see you...
+Im king man...
+ツI'm bored of you
+⚠I'm Venom 
+⚠I'm Dough
+꧁I'm better than everyone꧂
